@@ -1,2 +1,0 @@
-# Practing-Prodjects
-# Practing-Projects
